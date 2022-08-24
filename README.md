@@ -1,3 +1,3 @@
 # przyklad
 
-to są nasze zabawy z guccim
+to są nasze zabawy z guccim xdddd
